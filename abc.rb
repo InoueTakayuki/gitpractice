@@ -1,3 +1,3 @@
 aaaaaaabbbbccc
 
-kkkkkkkkkkkkk
+あいうえおかきくけこkkkkkkkkkkkkk
