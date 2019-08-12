@@ -1,8 +1,6 @@
 aaaaaaabbbbccc
-
 あいうえおかきくけこkkkkkkkkkkkkk
-
-fffffffffkedkdiekdk
+aaabbbccckedkdiekdk
 jふぃえjfdkふぇふぇふぇ
 dlfkeokfa;dfpakpofekfaeaf
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
