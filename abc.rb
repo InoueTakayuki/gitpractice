@@ -1,5 +1,5 @@
 aaaaaaabbbbccc
 
 あいうえおかきくけこkkkkkkkkkkkkk
-
+aaabbbccc
 dlfkeokfa;dfpakpofekfaeaf
